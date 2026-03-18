@@ -25,6 +25,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Bonnie - In stars in time - </p>
 <p align="center"> - Spooky - Spooky's Jumpscare Mansion - </p>
 <p align="center"> - Harken - Die of Death - </p>
+<p align="center"> - Glowby - Poppy Playtime - </p>
 <p align="center"> - Benny - The Lego Movie - </p>
 <p align="center"> - Kel - Omori - </p>
 <p align="center"> - Anon - MyGo!!!!! - </p>
