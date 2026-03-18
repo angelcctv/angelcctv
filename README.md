@@ -12,6 +12,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 
 
 <p align="center"> - Itching my Chinny chin chin.. These are my Kinny Kin Kins... (most to least) - </p>
+<p align="center"> - ( NOT A FICTKIN OR AN IRL. THESE CHARACTERS ARE WHO I RELATE TO. )  - </p>
 <p align="center"> - Not a character but I am robotkin and computerkin!! (i dont GENUINELY think so.. its like in a furry way lol.. which i also am) - </p>
 <p align="center"> - Nagisa Momoe - Madoka magica - </p>
 <p align="center"> - Sakura Kinomoto - CardCaptor Sakura - </p>
