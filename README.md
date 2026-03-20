@@ -3,6 +3,8 @@
 <p align="center"> - minor (probably younger than you) (be normal) -  </p>
 <p align="center"> - trans + techum ('w') - </p>
 <p align="center"> - 👀 WARNING for LIBS....j. i Think Crude humor. Poop pee butt fart is very Amusing....DNI if you cant handle such... hhHumor..You are WWWWWWARNED... 👀 - </p>
+<p align="center"> - FOR PT - usually sitting around at bakery clicking on people and reading their githubs! - </p>
+<p align="center"> - FOR PT - im way too scared to int with people on my own but i am usually social when people int first or im with friends!! :D - </p>
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e3326098-9a32-4ad7-992a-d12444d1b593"> </p>
 
