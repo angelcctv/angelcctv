@@ -6,6 +6,8 @@
 <p align="center"> - 👀 WARNING for LIBS....j. i Think Crude humor. Poop pee butt fart is very Amusing....DNI if you cant handle such... hhHumor..You are WWWWWWARNED... 👀 - </p>
 <p align="center"> - FOR PT - usually sitting around at bakery clicking on people and reading their githubs! - </p>
 <p align="center"> - FOR PT - im way too scared to int with people on my own but i am usually social when people int first or im with friends!! :D - </p>
+<p align="center"> - kms/kys jokes are okay to say around me however im a little bit sensitive to it ^_^;; pls b nice to meee... - </p>
+<p align="center"> - this is probably somewhere on here already but for the TLDR'ers. DONT MAKE FREAKY OR ROMANTIC JOKES TO ME!!!!!!!! or around meee it makes me uncomfy - </p>
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e3326098-9a32-4ad7-992a-d12444d1b593"> </p>
 
