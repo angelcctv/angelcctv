@@ -1,4 +1,4 @@
- ₊ - ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep... . ♬ - ݁˖_0
+ ₊ - ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep... . ♬ - ݁˖0
 <p align="center">. ♬ ݁˖ drifting off to sleep..</p>
 ------------------------------------------------------------------------------------------------------------------------------------
 <p align="center"> - heyheyyy !! im angel , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
