@@ -63,7 +63,6 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/5d4e720b-1b4c-43c6-8da7-247cce94ce8b"> </p>
 <p align="center"> - My Friggin selfships/yumes if you care abt doubles.. (i am a full sharer.. go CRAY CRAY) - </p>
-<p align="center"> - Dozer - Grace - </p>
 <p align="center"> - Ikabod Kee/IK - The Upturned - </p>
 <p align="center"> - Builderman/Hatred - BLOCKTALES SPECIFICALLY. - </p>
 <p align="center"> - Glowby - Poppy playtime - </p>
@@ -75,4 +74,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Gatekeeper - Toontown Corporate clash - </p>
 <p align="center"> - Harken - Die of Death </p>
 <p align="center"> - Devesto - Die of Death - </p>
+<p align="center"> - Giffany - Gravity Falls - </p>
+<p align="center"> - HAL 9000 - 2001 a Space Odyssey - </p>
+<p align="center"> - SAL 9000 - 2010 the Year We Make Contact - </p>
 <p align="center"> - and probably moreee - </p>
