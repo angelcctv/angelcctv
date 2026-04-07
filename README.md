@@ -1,5 +1,5 @@
-#  `𖦹₊ ⊹  . ♬ ݁˖`
-
+#  𖦹₊ ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep.. . ♬ ݁˖
+#- `. ♬ ݁˖ drifting off to sleep..`
 <p align="center"> - heyheyyy !! im angel , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
 <p align="center"> - .. dont worry she let me type that - </p>
 <p align="center"> - minor (probably younger than you) (be normal) -  </p>
