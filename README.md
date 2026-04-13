@@ -13,7 +13,7 @@
 <p align="center"> - FOR PT - usually sitting around at bakery clicking on people and reading their githubs! - </p>
 <p align="center"> - FOR PT - im way too scared to int with people on my own but i am usually social when people int first or im with friends!! :D - </p>
 <p align="center"> - kms/kys jokes are okay to say around me however im a little bit sensitive to it ^_^;; pls b nice to meee... - </p>
-<p align="center"> - this is probably somewhere on here already but for the TLDR'ers. DONT MAKE FREAKY OR ROMANTIC JOKES TO ME!!!!!!!! or around meee it makes me uncomfy - </p>
+<p align="center"> - this is probably somewhere on here already but for the TLDR'ers. DONT MAKE FREAKY OR ROMANTIC JOKES TO ME!!!!!!!! or around meee it makes me uncomfy (im bad at saying this to people so i will just.. silently be unomfortable if u do this and dont read my github... sorry) - </p>
 <p align="center"> - pls dni if you hate cats and/or dogs or really any animal for that matter. i think all animals should be loved - </p>
 <p align="center"> - vivziepop fans dniuid or you like the media and aknowledge the behaviors of the show or vivzie (aka support the art not the artist)! pls!! ^_^ - </p>
 
