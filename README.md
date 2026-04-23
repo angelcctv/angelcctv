@@ -25,7 +25,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 
 <p align="center"> - Itching my Chinny chin chin.. These are my Kinny Kin Kins... (most to least) - </p>
 <p align="center"> - ( NOT A FICTKIN OR AN IRL. THESE CHARACTERS ARE WHO I RELATE TO. )  - </p>
-<p align="center"> - Not a character but I am robotkin and angelkin (i dont GENUINELY think so.. its like in a furry way lol.. which i also am) - </p>
+<p align="center"> - not characters however i am angelkin, robotkin, and knightkin!! - </p>
 <p align="center"> - Nagisa Momoe - Madoka magica - </p>
 <p align="center"> - Sakura Kinomoto - CardCaptor Sakura - </p>
 <p align="center"> - Gangle - the amazing digital circus - </p>
@@ -34,6 +34,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Ralsei - Deltarune - </p>
 <p align="center"> - 9 - 17776/20020 - </p>
 <p align="center"> - Lancer - Deltarune - </p>
+<p align="center"> - Avery/Averythemayo/Themostmayo - sfawtde/dawtde - </p>
 <p align="center"> - Fern - IHasAFaceLulz - </p>
 <p align="center"> - Bonnie - In stars in time - </p>
 <p align="center"> - Spooky - Spooky's Jumpscare Mansion - </p>
