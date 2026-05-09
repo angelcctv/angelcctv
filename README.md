@@ -36,6 +36,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Lancer - Deltarune - </p>
 <p align="center"> - Avery/Averythemayo/Themostmayo - sfawtde/dawtde - </p>
 <p align="center"> - Fern - IHasAFaceLulz - </p>
+<p align="center"> - Koishi Komeiji - touhou - </p>
 <p align="center"> - Bonnie - In stars in time - </p>
 <p align="center"> - Spooky - Spooky's Jumpscare Mansion - </p>
 <p align="center"> - Harken - Die of Death - </p>
