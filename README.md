@@ -1,11 +1,11 @@
  <p align="center"> 0 -₊ - ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep...   . ♬ - ݁˖0 </p>
 <p align="center">. ♬ ݁˖ drifting off to sleep..</p>
 <p align="center"> - ----------------------------------------------------- -  </p>
-<p align="center"> - heyheyyy !! im angel , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
+<p align="center"> - heyheyyy !! im angel/mitchell , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
 <p align="center"> - .. dont worry she let me type that - </p>
-<p align="center"> - minor (probably younger than you) (be normal) -  </p>
+<p align="center"> - minor (12-13) -  </p>
 <p align="center"> - trans + techum ('w') - </p>
-<p align="center"> - over 15 mostly dni or atleast dont act like im your best friend ^_^ - </p>
+<p align="center"> - 15+ dniuid (basically dni if youre gonna act like im your best friend), proship/darkship/whateverthehellyouguyscallit heavy dni, fictkins who instead of fictkinning as pretend fictkin and genuinely think they ARE the character dni (and please get help, i am worried for you /gen /nm) - </p>
 <p align="center"> - 👀 WARNING for LIBS....j. i Think Crude humor. Poop pee butt fart is very Amusing....DNI if you cant handle such... hhHumor..You are WWWWWWARNED... 👀 - </p>
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e3326098-9a32-4ad7-992a-d12444d1b593"> </p>
