@@ -1,6 +1,12 @@
  <p align="center"> 0 -₊ - ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep...   . ♬ - ݁˖0 </p>
 <p align="center">. ♬ ݁˖ drifting off to sleep..</p>
 <p align="center"> - ----------------------------------------------------- -  </p>
+[ page one, introduction, dnis, and basic info. ]
+[ page 2, interests and hobbies ]
+[ page 3, kins. ]
+[ page 4, pony town boundaries ]
+[ page 5, boundaries ]
+(Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!)
 <p align="center"> - heyheyyy !! im angel/mitchell , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
 <p align="center"> - .. dont worry she let me type that - </p>
 <p align="center"> - minor (12-13) -  </p>
@@ -17,12 +23,12 @@
 <p align="center"> - pls dni if you hate cats and/or dogs or really any animal for that matter. i think all animals should be loved - </p>
 <p align="center"> - vivziepop fans dniuid or you like the media and aknowledge the behaviors of the show or vivzie (aka support the art not the artist)! pls!! ^_^ - </p>
 
-
+<p align="center"> - ----------------------------------------------------- -  </p>
 interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just shapes and beats**, **cardcaptor sakura** , **deltarune** , **touhou** , **len'en** , phighting , **space is my passion '3'** , little goody two shoes, omori , **alien nine**, blocktales, phighting, roblox in general lol, **yume nikki**, ultraviolet, **spooky's jumpscare mansion**, **portal**, **madoka magica**, **vocaloid**, the upturned, playtime with percy, murder drones, the amazing digital circus, kaleidoscope (roblox), delusional office (roblox), **ena (series and dream bbq, im gonna flex rq ive loved ena since 2022..heh)**, meleeniacs (ROBLOX), regretevator (ROBLOX), **dandys world (dandys world) (i mean roblox)**, depth spelunking (ROBLOX), collinlock16 continuity, DIE OF DEATH (ROBLOX), **Rain World**, **Minecraft ARG(s) in general**, **object shows**, cookie run. AReGect/zabooboo3 (moe is me), **angels in general (aswell as the concept of gods)**, the stanely parable, **17776/20020** a hat in time, ULTRAKILL, oneshot, in stars and time, **2001 a space odyessy (my favorite movie oat)**, 2010 - the year we make contact (Goatedd), smiling friends (only the non gory episodes), bandori (avemujica and mygo in specific), umamusume, flavor foley dudes (THEY SAY M), **the owl house, amphibia, gravity falls (all changed me as a person)**, homestar runner, technology as a whole, nichijou, lucky star, poppy playtime (Glowby is Gloated. Like goated. But glowby), soul monitor, searching for a world that doesnt exist/destroying a world that doesnt exist, Bendy and the ink machine, SCP, and a LOT more to come LOL 
 
 <p align="center"> HOBBIES!!: Drawing, composing, GAMING!!!!!!, baking (im buns at it), hanging out with my friends 💙 ^_^ bracelet making/kandi, kissin my computer 😘, writing YAOI.. </p>
 
-
+<p align="center"> - ----------------------------------------------------- -  </p>
 <p align="center"> - Itching my Chinny chin chin.. These are my Kinny Kin Kins... (most to least) - </p>
 <p align="center"> - ( NOT A FICTKIN OR AN IRL. THESE CHARACTERS ARE WHO I RELATE TO. )  - </p>
 <p align="center"> - not characters however i am angelkin, robotkin, and knightkin!! - </p>
@@ -52,6 +58,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Monella/Moe - Zabooboo labooboo2 - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/fdf076c0-3f33-4678-af48-536573b27a7b"> </p>
 
+<p align="center"> - ----------------------------------------------------- -  </p>
 <p align="center"> - IF YOU ARE FROM PONY TOWN!! - </p>
 <p align="center"> - Boundaries!!!!!!!!!!!! Pony town Specifically - </p>
 <p align="center"> - DO not make super suggestive jokes around me it makes me HELLA uncomfortable -</p>
@@ -63,6 +70,7 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - if you come up to me with "DNI!" in your name i will be horribly confused - </p>
 <p align="center"> - toot freely... like a bird - </p>
 <p align="center"> - this is just my normal dnis but dont come up to me if youre a proshipper or stuff - </p>
+<p align="center"> - ----------------------------------------------------- -  </p>
 
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/5d4e720b-1b4c-43c6-8da7-247cce94ce8b"> </p>
 <p align="center"> - My Friggin selfships/yumes if you care abt doubles.. (i am a full sharer.. go CRAY CRAY) - </p>
