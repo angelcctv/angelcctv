@@ -2,11 +2,11 @@
 <p align="center">. ♬ ݁˖ drifting off to sleep..</p>
 <p align="center"> - ----------------------------------------------------- -  </p>
 
-- [ page one, introduction, dnis, and basic info. ] -
-- [ page 2, interests and hobbies ] -
-- [ page 3, kins. ] -
-- [ page 4, pony town boundaries ] -
-- [ page 5, selfships/yumes if you dislike doubles. ] -
+- [ page 1, introduction, dnis, and basic info. ] 
+- [ page 2, interests and hobbies ] 
+- [ page 3, kins. ] 
+- [ page 4, pony town boundaries ] 
+- [ page 5, selfships/yumes if you dislike doubles. ] 
 <p align="center"> - (Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!) -  </p>
 
 <p align="center"> - ----------------------------------------------------- -  </p>
