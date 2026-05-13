@@ -1,12 +1,15 @@
  <p align="center"> 0 -₊ - ⊹ ill be the phonograph that plays your favorite albums back, as youre lying there. drifting off to sleep...   . ♬ - ݁˖0 </p>
 <p align="center">. ♬ ݁˖ drifting off to sleep..</p>
 <p align="center"> - ----------------------------------------------------- -  </p>
-[ page one, introduction, dnis, and basic info. ]
-[ page 2, interests and hobbies ]
-[ page 3, kins. ]
-[ page 4, pony town boundaries ]
-[ page 5, boundaries ]
-(Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!)
+
+- [ page one, introduction, dnis, and basic info. ] -
+- [ page 2, interests and hobbies ] -
+- [ page 3, kins. ] -
+- [ page 4, pony town boundaries ] -
+- [ page 5, selfships/yumes if you dislike doubles. ] -
+<p align="center"> - (Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!) -  </p>
+
+<p align="center"> - ----------------------------------------------------- -  </p>
 <p align="center"> - heyheyyy !! im angel/mitchell , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
 <p align="center"> - .. dont worry she let me type that - </p>
 <p align="center"> - minor (12-13) -  </p>
