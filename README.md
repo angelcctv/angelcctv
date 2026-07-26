@@ -19,6 +19,8 @@
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e3326098-9a32-4ad7-992a-d12444d1b593"> </p>
 
+<p align="center"> - right now i dislike verity, and dandys world but wont mind if people who like them interact (dandys world is obvious, i dislike verity due to creators supporting an ai mod despite the whole thing being rep of how bad ai can get) - </p>
+
 <p align="center"> - FOR PT - usually sitting around at bakery clicking on people and reading their githubs! - </p>
 <p align="center"> - FOR PT - im way too scared to int with people on my own but i am usually social when people int first or im with friends!! :D - </p>
 <p align="center"> - kms/kys jokes are okay to say around me however im a little bit sensitive to it ^_^;; pls b nice to meee... - </p>
@@ -28,7 +30,7 @@
 
 <p align="center"> - ----------------- Page 2 ----------------- -  </p>
 
-interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just shapes and beats**, **cardcaptor sakura** , **deltarune** , **touhou** , **len'en** , phighting , **space is my passion '3'** , little goody two shoes, omori , **alien nine**, blocktales, phighting, **yume nikki**, ultraviolet, **spooky's jumpscare mansion**, **portal**, **madoka magica**, **vocaloid**, the upturned, playtime with percy, murder drones, the amazing digital circus, kaleidoscope (roblox), delusional office (roblox), **ena (series and dream bbq, im gonna flex rq ive loved ena since 2022..heh)**, meleeniacs (ROBLOX), regretevator (ROBLOX), depth spelunking (ROBLOX), collinlock16 continuity, DIE OF DEATH (ROBLOX), **Rain World**, **Minecraft ARG(s) in general**, **object shows**, cookie run. AReGect/zabooboo3 (moe is me), **angels in general (aswell as the concept of gods)**, the stanely parable, **17776/20020** a hat in time, ULTRAKILL, oneshot, in stars and time, **2001 a space odyessy (my favorite movie oat)**, 2010 - the year we make contact (Goatedd), smiling friends (only the non gory episodes), bandori (avemujica and mygo in specific), umamusume, flavor foley dudes (THEY SAY M), **the owl house, amphibia, gravity falls (all changed me as a person)**, homestar runner, technology as a whole, nichijou, lucky star, poppy playtime (Glowby is Gloated. Like goated. But glowby), soul monitor, searching for a world that doesnt exist/destroying a world that doesnt exist, Bendy and the ink machine, SCP, and a LOT more to come LOL 
+interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just shapes and beats**, **cardcaptor sakura** , **deltarune** , **touhou** , **len'en** , phighting , **space is my passion '3'** , little goody two shoes, omori , **alien nine**, blocktales, phighting, **yume nikki**, ultraviolet, **spooky's jumpscare mansion**, **portal**, **madoka magica**, **vocaloid**, the upturned, playtime with percy, murder drones, the amazing digital circus, kaleidoscope (roblox), delusional office (roblox), **ena (series and dream bbq, im gonna flex rq ive loved ena since 2022..heh)**, meleeniacs (ROBLOX), regretevator (ROBLOX), depth spelunking (ROBLOX), collinlock16 continuity, DIE OF DEATH (ROBLOX), **Rain World**, **Minecraft ARG(s) in general**, **object shows**, cookie run. AReGect/zabooboo3 (moe is me), **angels in general (aswell as the concept of gods)**, the stanely parable, **17776/20020** a hat in time, ULTRAKILL, oneshot, in stars and time, **2001 a space odyessy (my favorite movie oat)**, 2010 - the year we make contact (Goatedd), smiling friends (only the non gory episodes), bandori (avemujica and mygo in specific), umamusume, flavor foley dudes (THEY SAY M), **the owl house, amphibia, gravity falls (all changed me as a person)**, homestar runner, technology as a whole, nichijou, lucky star, poppy playtime (Glowby is Gloated. Like goated. But glowby), soul monitor, searching for a world that doesnt exist/destroying a world that doesnt exist, Bendy and the ink machine, SCP, animal hospital, pwned by 14:00, and a LOT more to come LOL 
 
 <p align="center"> HOBBIES!!: Drawing, composing, GAMING!!!!!!, baking (im buns at it), hanging out with my friends 💙 ^_^ bracelet making/kandi, kissin my computer 😘, writing YAOI.. </p>
 
@@ -58,7 +60,6 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 <p align="center"> - Homestar Runner - .. Homestar Runner - </p>
 <p align="center"> - Hat Kid - A Hat In Time - </p>
 <p align="center"> - my own perception of Frisk (undertale. obviously) - </p>
-<p align="center"> - Yatta - Dandy's World - </p>
 <p align="center"> - Monella/Moe - Zabooboo labooboo2 - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/fdf076c0-3f33-4678-af48-536573b27a7b"> </p>
 
