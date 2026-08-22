@@ -10,7 +10,7 @@
 <p align="center"> - (Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!) -  </p>
 
 <p align="center"> - ----------------- Page 1 ----------------- -  </p>
-<p align="center"> - heyheyyy !! im angel/mitchell , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
+<p align="center"> - heyheyyy !! im angel/radiotrophic , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
 <p align="center"> - .. dont worry she let me type that - </p>
 <p align="center"> - minor (12-13) -  </p>
 <p align="center"> - trans + techum ('w') - </p>
@@ -19,7 +19,7 @@
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/e3326098-9a32-4ad7-992a-d12444d1b593"> </p>
 
-<p align="center"> - right now i dislike verity, and dandys world but wont mind if people who like them interact (dandys world is obvious, i dislike verity due to creators supporting an ai mod despite the whole thing being rep of how bad ai can get) - </p>
+<p align="center"> - verity and dandy's world fans thin ice, putting this here due to both being very popular - </p>
 
 <p align="center"> - FOR PT - usually sitting around at bakery clicking on people and reading their githubs! - </p>
 <p align="center"> - FOR PT - im way too scared to int with people on my own but i am usually social when people int first or im with friends!! :D - </p>
