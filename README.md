@@ -10,10 +10,8 @@
 <p align="center"> - (Sorry for long github! I personally love reading githubs so i thought others would, but if that's not your thing, feel free to skim it over!) -  </p>
 
 <p align="center"> - ----------------- Page 1 ----------------- -  </p>
-<p align="center"> - heyheyyy !! im angel/radiotrophic , a lamb probably.. or a hamster if you ask my FAT sister -  </p>
-<p align="center"> - .. dont worry she let me type that - </p>
+<p align="center"> - heyheyyy !! im angel/radiotrophic!! i'm trans, techum(objectum) and aegoromantic!! - </p>
 <p align="center"> - minor (12-13) -  </p>
-<p align="center"> - trans + techum ('w') - </p>
 <p align="center"> - 15+ dniuid (basically dni if youre gonna act like im your best friend), proship/darkship/whateverthehellyouguyscallit heavy dni - </p>
 <p align="center"> - 👀 WARNING for LIBS....j. i Think Crude humor. Poop pee butt fart is very Amusing....DNI if you cant handle such... hhHumor..You are WWWWWWARNED... 👀 - </p>
 <p align="center"> - Adhd! Undiagnosed. Do not come for my ass. - </p>
