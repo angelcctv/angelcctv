@@ -78,6 +78,6 @@ interests!!: (bolded = more prominent) : **FNAF**, **project sekai** , **just sh
 
 <p align="center"> <img width="600" height="600" src="https://github.com/user-attachments/assets/5d4e720b-1b4c-43c6-8da7-247cce94ce8b"> </p>
 <p align="center"> - My Friggin selfships/yumes if you care abt doubles.. (Soft sharing! Just don't say you like them more than me and we're all good!!)- </p>
-<p align="center"> - Ikabod Kee/IK - The Upturned - </p>
+<p align="center"> - Smiley/Giddy - Smiley Archives [ MAIN YUME ! ] - </p>
 <p align="center"> - Builderman/Hatred - BLOCKTALES SPECIFICALLY. - </p>
 <p align="center"> - Raven - FUNHOUSE roblox - </p>
