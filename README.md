@@ -1,2 +1,1 @@
-<img width="350" height="200" src="https://preview.redd.it/how-do-enemies-usually-see-the-arrival-of-your-jumper-v0-eu2swr35n9p51.jpg?width=1080&crop=smart&auto=webp&s=78f631d7ace9ba515eee9c0e7b4b554a56075158">
-<p align="right"> Stay alert. </p>
+<img width="350" height="200" src="https://preview.redd.it/how-do-enemies-usually-see-the-arrival-of-your-jumper-v0-eu2swr35n9p51.jpg?width=1080&crop=smart&auto=webp&s=78f631d7ace9ba515eee9c0e7b4b554a56075158"> <p align="right"> Stay alert. </p>
