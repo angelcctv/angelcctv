@@ -12,6 +12,9 @@
 
 <p align="right"> check strawpage for more info ⋆‧°𓏲ּ𝄢 </p>
 
+
+
+
 <p align="left">
 <a href="https://www.youtube.com/watch?v=Fmo28Eggl70">▶︎ •၊၊||၊|။||||| 3:47</a>
 
