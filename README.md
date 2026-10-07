@@ -13,7 +13,8 @@
 <p align="right"> check strawpage for more info ⋆‧°𓏲ּ𝄢 </p>
 
 <p align="left">
-  <a href="https://www.youtube.com/watch?v=Fmo28Eggl70">▶︎ •၊၊||၊|။||||| 3:47</a>
+<a href="https://www.youtube.com/watch?v=Fmo28Eggl70">▶︎ •၊၊||၊|။||||| 3:47</a>
+</p>
 <p align="left"> ──── ୨୧ ──── </p>
 <p align="center">﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p> 
 <p align="center"> ![Uploading_thankyouforeading.wav]! </p>
