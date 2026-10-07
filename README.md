@@ -1,5 +1,5 @@
 
-**<p align="center"> STAY ALERT.</p>**
+**<p align="center"> STAY ALERT. THERE WILL BE NOTHING YOU CAN DO.</p>**
 <img align="left" width="450" height="250" src="https://preview.redd.it/how-do-enemies-usually-see-the-arrival-of-your-jumper-v0-eu2swr35n9p51.jpg?width=1080&crop=smart&auto=webp&s=78f631d7ace9ba515eee9c0e7b4b554a56075158"> 
 
 
