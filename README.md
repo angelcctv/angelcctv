@@ -8,7 +8,7 @@
  <p align="right"> ⋆‧°𓏲ּ𝄢 12-14, aegoromantic queer techum trans guy (he/error).</p>
 <p align="right"> mostly w2i as i have pt on in background when not with friends, c+h freely unless i'm with friends. </p>
 
-<p align="right"> smiley/giddy (smiley archives) softsharing yumeshipper ❤︎ </p>
+<p align="right"> smiley/giddy (smiley archives), and monster(fnf, scary hour) softsharing yumeshipper ❤︎ </p>
 
 <p align="right"> don't vent to me or make freaky/romantic jokes to or at me </p>
 
