@@ -10,6 +10,8 @@
 
 <p align="right"> smiley/giddy (smiley archives) softsharing yumeshipper ❤︎ </p>
 
+<p align="right"> don't vent to me or make freaky/romantic jokes to or at me </p>
+
 <p align="right"> check strawpage for more info ⋆‧°𓏲ּ𝄢 </p>
 
 <p align="right">
